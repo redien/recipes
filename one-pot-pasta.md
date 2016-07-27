@@ -1,11 +1,12 @@
 
 # One pot pasta
 
-4 servings
+### Servings
+4 portions
 
 ### Ingredients
 * 400g chopped tomatoes
-* 50g Olives
+* 50g canned olives
 * 100g artichoke hearts in oil
 * 150g chickpeas
 * 200g mozzarella
