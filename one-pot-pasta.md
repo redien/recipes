@@ -2,7 +2,7 @@
 # One pot pasta
 
 ### Servings
-4 portions
+4 servings
 
 ### Ingredients
 * 400g chopped tomatoes
