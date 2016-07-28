@@ -7,3 +7,4 @@
 * 150g chickpeas
 * 200g mozzarella
 * 200g spaghetti pasta
+* 250g white onion
